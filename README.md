@@ -1,9 +1,9 @@
 # Welcome to Anthony's Puppy Site
 
 We have nine young puppies available (born on May 29).
+These are the parents:
 
 
-The usual vaccines are reserved and the dogs will receive their vaccine at two months old.  
 
 ## Welcome to GitHub Pages
 
