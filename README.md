@@ -1,5 +1,10 @@
 # Welcome to Anthony's Puppy Site
 
+We have nine young puppies available (born on May 29).
+
+
+The usual vaccines are reserved and the dogs will receive their vaccine at two months old.  
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/zorbathegreek/puppies/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
