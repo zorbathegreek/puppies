@@ -5,7 +5,7 @@ These are their parents:
 
 Nero (photo coming soon)
 
-(http://pcloscloud.com/index.php/s/HjxyChCZBW1RVvc)
+[http://pcloscloud.com/index.php/s/HjxyChCZBW1RVvc]
 
 Bella (photo coming soon)
 
