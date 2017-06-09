@@ -25,6 +25,6 @@ They will be vaccinated at two and three months against rabies and the common pr
 We will screen with a Volhardt Test at 7 weeks and videoshoot that, and make these videos available to those people who are interested.
 
 
-Here is some [reading material]({{ https://archive.org/download/DontShootTheDog/Dont-shoot-the-dog.pdf }})
+Here is some [reading material]({{https://archive.org/download/DontShootTheDog/Dont-shoot-the-dog.pdf}})
 
 
