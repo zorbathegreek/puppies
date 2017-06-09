@@ -3,7 +3,7 @@
 We have nine young puppies available (born on May 29). (photos coming soon)
 These are their parents:
 
-![Nero](http://pcloscloud.com/index.php/s/Hr5L4ZQrBkrcsY9)
+![Nero](http://pcloscloud.com/index.php/s/Hr5L4ZQrBkrcsY9){:class="img-responsive"}
 
 Bella (photo coming soon)
 
