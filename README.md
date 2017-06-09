@@ -3,12 +3,15 @@
 We have nine young puppies available (born on May 29). (photos coming soon)
 These are their parents:
 
-![Nero](http://pcloscloud.com/index.php/s/HjxyChCZBW1RVvc)
+![Nero](https://pcloscloud.com/index.php/s/HjxyChCZBW1RVvc)
 
 Bella (photo coming soon)
 
 Here is an older sibling, playing with a cat! 
 https://youtu.be/kWcsqJ4R1EY
+
+And one eating pawpaw
+![Linus](https://pcloscloud.com/index.php/s/L3oEJLo6A5r7Ucm)
 
 They are located in Rusizi (Cyangugu); because you may find it difficult to pass by and have a look, we have some videos (here), (here) and (here). We will update these videos from time to time.
 
