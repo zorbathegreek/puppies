@@ -12,7 +12,7 @@ https://youtu.be/kWcsqJ4R1EY
 
 And one eating pawpaw
 
-![Linus](https://github.com/zorbathegreek/puppies/)
+![Linus](https://github.com/zorbathegreek/puppies/blob/master/video_2017-06-09_11-55-20.mp4)
 
 They are located in Rusizi (Cyangugu); because you may find it difficult to pass by and have a look, we have some videos (here), (here) and (here). We will update these videos from time to time.
 
