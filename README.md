@@ -26,6 +26,6 @@ We will screen with a Volhardt Test at 7 weeks and videoshoot that, and make the
 
 
 Here is some reading material: 
-_ https://archive.org/download/DontShootTheDog/Dont-shoot-the-dog.pdf
+* https://archive.org/download/DontShootTheDog/Dont-shoot-the-dog.pdf
 
 
