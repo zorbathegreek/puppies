@@ -1,7 +1,7 @@
 # Welcome to Anthony's Puppy Site
 
 We have nine young puppies available, born on May 29. 
-![B9p](https://github.com/zorbathegreek/puppies/blob/master/Bella_with_nine_puppies.JPG)
+![BellaWith9](https://github.com/zorbathegreek/puppies/blob/master/Bella_with_nine_puppies.JPG)
 
 This is the father:
 
