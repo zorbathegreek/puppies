@@ -3,11 +3,9 @@
 We have nine young puppies available (born on May 29). 
 ![Bella with puppies](https://github.com/zorbathegreek/puppies/blob/master/Bella_with_nine_puppies.jpg)
 
-These are their parents:
+This is the father:
 
 ![Nero, the father](http://pcloscloud.com/index.php/s/Hr5L4ZQrBkrcsY9)
-
-Bella (photo coming soon)
 
 Here is an older sibling, playing with a cat! 
 https://youtu.be/kWcsqJ4R1EY
